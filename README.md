@@ -1,2 +1,5 @@
-# test-with-JK
+# test-with-Jaloliddin
 o'sha gap
+
+ Qalesiz endi?
+ 
